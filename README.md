@@ -7,5 +7,5 @@
 - 📫 How to reach me: ... winston@winstoniskandar.com 
 - 😄 Pronouns: ... he/him
 
-If you want to learn more, here's my website: winstoniskandar.com
+If you want to learn more, my website is in the description!
 
