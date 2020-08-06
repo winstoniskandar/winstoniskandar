@@ -8,4 +8,4 @@
 - 😄 Pronouns: ... he/him
 
 If you want to learn more, my website is in the description!
-
+Also, feel free to join my discord server: https://discord.gg/DMhhCr
